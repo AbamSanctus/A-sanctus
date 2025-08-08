@@ -1,0 +1,1 @@
+text, images,anime videos
